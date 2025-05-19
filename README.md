@@ -1,3 +1,17 @@
-![](https://i.postimg.cc/L5Z6thP9/IMG-1904.jpg)
+<p align="center">
+  <img src="https://i.postimg.cc/rmjSMKmw/989-EA9-D9-451-E-4-FEB-B9-F3-C37347-F876-F4.gif" />
+</p>
+
 ***
-### sign [ata](https://maxx.atabook.org)  ,, working on my rentry !
+
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀[ata](https://maxx.atabook.org) ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀   ⠀ ⠀rentry⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀prns page
+
+⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀
+
+if you ever want to int please do with extreme caution, ive been feeling a lot lately and i dont want to include anybody with my feelings or problems, im super sorry if i hurt you with words i dont know what to say anymore at the time + i make sarcastic jokes that are ofcourse, not true. i find it funny insulting or jokingly bully people tell me if you are uncomfortable, ill lessen it.
