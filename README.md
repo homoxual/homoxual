@@ -4,7 +4,7 @@
 
 ***
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀  ⠀[ata](https://maxx.atabook.org) ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀   ⠀ ⠀rentry⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀prns page
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀  ⠀[ata](https://maxx.atabook.org) ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀   ⠀ ⠀rentry⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀prns page
 
 ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀
