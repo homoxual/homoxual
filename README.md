@@ -18,4 +18,4 @@ if you ever want to int please do with extreme caution, ive been feeling a lot l
 
 aside from that, c+h is free and w2i, im mostly offtabbb i mean best to sign my ata am i right?giggles
 
-please dont think i hate u i block who i hate and whoever has a fuss with my boyfriend
+please dont think i hate u i block who i hate and whoever has a fuss with my friends
